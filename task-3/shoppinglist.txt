@@ -4,3 +4,5 @@ shopping list
 3.watch
 4.laptop
 5.banana
+6.carrot
+7.bag
