@@ -4,3 +4,8 @@ shopping list
 3.watch
 4.laptop
 5.banana
+
+wordrobe shopping list-
+1)jacket
+2)shirt
+3)trouser
