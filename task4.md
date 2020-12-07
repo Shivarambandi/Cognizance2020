@@ -7,7 +7,7 @@
 ## Religious Culture
 
 
-Indian-origin religions Hinduism, Jainism, Buddhism, and Sikhism, are all based on the concepts of dharma and karma. Ahimsa, the philosophy of nonviolence, is an important aspect of native Indian faiths whose most well known proponent was Mahatma Gandhi, who used civil disobedience to bring India together against the British Raj – this philosophy further inspired Martin Luther King Jr. during the American civil rights movement. Foreign-origin religion, including Abrahamic religions, such as Judaism, Christianity and Islam, are also present in India, as well as Zoroastrianism and Baháʼí Faith both escaping persecution by Islam have also found shelter in India over the centuries.
+Indian-origin religions Hinduism, Jainism, Buddhism, and Sikhism, are all based on the concepts of dharma and karma.The Ahimsa, the philosophy of nonviolence, is an important aspect of native Indian faiths whose most well known proponent was Mahatma Gandhi, who used civil disobedience to bring India together against the British Raj – this philosophy further inspired Martin Luther King Jr. during the American civil rights movement. Foreign-origin religion, including Abrahamic religions, such as Judaism, Christianity and Islam, are also present in India, as well as Zoroastrianism and Baháʼí Faith both escaping persecution by Islam have also found shelter in India over the centuries.
 ![Markdown Logo](https://www.swantour.com/blogs/wp-content/uploads/2018/03/Temples-of-Khajuraho-1.jpg)
 
 
